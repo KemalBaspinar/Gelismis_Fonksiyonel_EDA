@@ -1,0 +1,1 @@
+# Gelismis_Fonksiyonel_EDA
